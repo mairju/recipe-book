@@ -1,0 +1,5 @@
+# Chicken Thighs
+
+## Ingredients
+
+## Instructions
