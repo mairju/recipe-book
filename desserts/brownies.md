@@ -23,24 +23,6 @@
 - Parchment paper
 - Kitchen scale
 
-
-## Ingredients
-
-- 300g wheat flour
-- 30g cocoa powder
-- 3 level teaspoons of baking powder
-- 150g brown sugar
-- 150g white sugar
-- 1 pkg Bourbon vanilla sugar
-- 1/2 teaspoon of salt
-- 4 eggs
-- 300ml cooking oil (e.g, rapeseed oil)
-- 50ml whipping cream or heavy cream (at least 30% fat)
-- 150g of chopped chocolate bar or chocolate chips
-- 100g walnut halves
-
-
-
 ## Instructions
 
 - Preheat the oven to 180°C.
