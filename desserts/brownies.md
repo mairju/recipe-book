@@ -1,14 +1,5 @@
 # Brownies
 
-
-## Utensils
-
-- Baking tray (30x40cm)
-- Hand mixer
-- Parchment paper
-- Kitchen scale
-
-
 ## Ingredients
 
 - 300g wheat flour
